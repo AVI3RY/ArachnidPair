@@ -4,13 +4,12 @@
 <p align="center">
 <br/>
 <br/>
-you've probably found yourself over here from ponytown, hi!! we're a DID system I promise we don't bite [at least most of us] though sometimes we tend to AFK so sorry if it seems like we're ignoring you please wisper to make sure we can see you!! feel free to hug!!
+you've probably found yourself over here from ponytown, hi!! we're a DID system I promise we don't bite we tend to AFK quite a bit so please don't feel upset if we don't respond!! please feel to send us a whisper + feel free to hug and overall just int with us! 
 <p align="center">
-yes we do have forsaken fictive's no they are not their source, please do not treat any of them as if they are, we don't like/support forsaken
 <br/><br/>
 <p align="center">
-also feel free to leave something for us on our strawpage https://arachnidrain.straw.page/ or our atabook!! https://arachnidrain.atabook.org/
+also feel free to leave something for us on our strawpage https://avi3ry.straw.page/
 <br/>
 <br/>
 <p align="center">
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d6045d55-24ec-48f7-81e8-46a7023520f8/dbrlkc7-2cea7dd6-6ac4-4d8b-a745-e50645dd4366.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Q2MDQ1ZDU1LTI0ZWMtNDhmNy04MWU4LTQ2YTcwMjM1MjBmOFwvZGJybGtjNy0yY2VhN2RkNi02YWM0LTRkOGItYTc0NS1lNTA2NDVkZDQzNjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.tesUIh0hrO-29Vhui0sq4FtDUq5Ds3rdFlsQPrbMAio"/>
+
